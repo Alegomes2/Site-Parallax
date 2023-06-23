@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://gifs.eco.br/wp-content/uploads/2022/04/gifs-de-bola-de-basquete-29.gif" width="250">
+  <img src="https://i.pinimg.com/originals/aa/d4/b4/aad4b4ff5ae0413ec69ebf6af0516e2e.gif" width="250">
 </p>
 
 
